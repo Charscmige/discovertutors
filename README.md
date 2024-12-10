@@ -1,0 +1,1 @@
+"Discover Tutors is anEdu-tech market place that helps schools and parents get easy access to qualified home tutors and provide flexible means of income for the tutors while providing quality and customized education and skills for scholars from Our City Anambra, then round Nigeria, Africa and go Global in 3 years."
